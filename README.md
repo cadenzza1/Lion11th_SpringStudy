@@ -1,4 +1,4 @@
-![IMG_9433 (1)](https://user-images.githubusercontent.com/81146131/236909978-d6632877-cd87-485e-9d7d-08d939fac9a4.jpg)
+![IMG_9433 (2)](https://user-images.githubusercontent.com/81146131/236910138-13cfc054-0f33-4ec9-860b-b7e0a37e6cf6.jpg)
 
 
 # Lion11th_SpringStudy
