@@ -1,3 +1,6 @@
+![IMG_9433](https://user-images.githubusercontent.com/81146131/236909622-58d0b4be-9541-4040-afd5-4c26142c72fd.jpg)
+
+
 # Lion11th_SpringStudy
 멋사11기 윤한햄 스프링 스터디
 
